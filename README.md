@@ -18,7 +18,7 @@ I believe that collaboration and knowledge-sharing are essential in this ever-ev
 
 ## Join me on my journey as I explore the limitless possibilities of game development and animation. Together, we can create interactive experiences that inspire, entertain, and challenge the status quo.
 
-📫 **Contact me:** [mailto:code620611@gmail.com.ext]
+📫 **Contact me:** [code620611@gmail.com]
 
 🌐 **Portfolio:** [https://ayan01.carrd.co/]
 
