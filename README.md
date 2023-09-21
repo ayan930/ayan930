@@ -18,8 +18,6 @@ I have a profound interest in:
 I'm always open to connecting with fellow enthusiasts, discussing ideas, and exploring new opportunities in the realms of animation and game development. Let's connect and share our passion:
 
 - 📧 **Email**: [code620611@gmail.com]
-- 🔗 **LinkedIn**: [Insert LinkedIn Profile](Link to LinkedIn)
-- 🐦 **Twitter**: [Insert Twitter Profile](Link to Twitter)
 
 Feel free to reach out—I'd love to connect with like-minded individuals and embark on exciting creative journeys together.
 
