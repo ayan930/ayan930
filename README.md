@@ -23,7 +23,3 @@ I believe that collaboration and knowledge-sharing are essential in this ever-ev
 🌐 **Portfolio:** [https://ayan01.carrd.co/]
 
 Let's level up the world of gaming and animation together!
-
----
-
-Feel free to personalize the contact information and portfolio link to Ayan's own details. This bio showcases Ayan's passion for game development and animation while also inviting collaboration and connection with fellow developers and enthusiasts.
