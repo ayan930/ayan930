@@ -18,6 +18,7 @@ I have a profound interest in:
 I'm always open to connecting with fellow enthusiasts, discussing ideas, and exploring new opportunities in the realms of animation and game development. Let's connect and share our passion:
 
 - 📧 **Email**: [code620611@gmail.com]
+- 🪪 **Know more about me!**: [https://ayan01.carrd.co/]
 
 Feel free to reach out—I'd love to connect with like-minded individuals and embark on exciting creative journeys together.
 
